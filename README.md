@@ -2,8 +2,8 @@
 My GitHub resume 
 # Hi, I’m Adrian Kalin  
 ### Crypto Support Specialist | Crypto Administrator  
-📍 Office in Odesa | 🌍 Remote across Ukraine  
-Languages: 🇺🇦 Ukrainian — Fluent | 🇷🇺 Russian — Fluent | 🇬🇧 English — Basic
+📍 Office in Odesa | 🌍 Remote across world  
+Languages: 🇺🇦 Ukrainian — Fluent | 🇷🇺 Russian — Fluent | 🇬🇧 English — Fluent
 
 ---
 
